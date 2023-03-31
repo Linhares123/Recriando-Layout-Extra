@@ -1,0 +1,1 @@
+Projeto feito nas dimensões 1024x790
